@@ -1,0 +1,8 @@
+[[Shota'ar]]
+[[Sa'ama]] 
+[[Kragan]] 
+[[Equiiana]] 
+[[Waihitu]]
+[[Skanley]] 
+[[Hollowind]] 
+[[Drivia]] 

@@ -1,0 +1,3 @@
+She has opened a chain of tattoo parlors across both continents almost every major city has one they are all named differently but usually contain a spin on the word hell or bloom
+
+Cheiron uses these tattoo parlors to gather information throughout the world. If you ever meet her you will notice a constant scroll of coded messages on her right forearm as she and her underlings use tattoo magic to communicate with one another.

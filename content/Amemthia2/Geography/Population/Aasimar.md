@@ -1,0 +1,1 @@
+[[Aasimar]] are the direct children of one or more elemental or gods of man often they are genetically identical to the humanoid used to conceive them as such all Aasimar are female. often a second generation Aasimar will have almost no relation to the elemental gods or the inherited power of their mother.

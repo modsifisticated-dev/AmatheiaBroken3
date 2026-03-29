@@ -1,0 +1,7 @@
+[[Equiiana]] is a nation built on wide open plains with easy access to the [[Great Moreabel Forest]]. Their major trade comes in the form of lumber, livestock, and grain.
+
+[[Equiiana]] has had one of the most prosperous existences in the post [[Mistfall]] age, given their access to lumber, which was the first resource most nations needed to rebuild after the mist. This made them highly wealthy before most nations could rebuild.
+
+They invested this money into their capital city, [[Thornhaven]] (placeholder name), which prospers. But trouble is brewing. Conflict between the [[nobles of Equiiana]], the [[guilds of Equiiana]], and the [[churches of Equiiana]] leaves it in constant tension, each trying to seize power for themselves.
+
+The points of power in [[Equiiana]] are the [[lumber]] milling cities of [[Longen]] (placeholder name), [[Turnover]] (placeholder name) and [[Lovender]] (placeholder name) close to the [[Great Moreabel Forest]], the towns that rear [[horses]] of [[Sterand]] (placeholder name) and [[Lakeworth]] (placeholder name) close to the twin inland freshwater lakes of [[Everblue]] (placeholder name) and [[Evergreen]] (placeholder name) that raise [[horses]] and export them to the rest of the world. They also grow a large amount of [[grain]] and [[livestock]] in the town [[Lith]] (placeholder name) and [[Galland]] (placeholder named) along the western coast.

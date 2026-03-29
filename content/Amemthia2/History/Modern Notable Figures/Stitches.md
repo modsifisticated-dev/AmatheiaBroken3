@@ -1,0 +1,1 @@
+A halfling who was a loyal servant of Isaachar

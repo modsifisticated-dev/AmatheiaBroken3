@@ -1,0 +1,1 @@
+Dragonborn are a race born after the mist and as such people find them very mysterious they live amongst the elves cause they're the only race who remember a time before all the other races existed so they aren't prejudiced against them

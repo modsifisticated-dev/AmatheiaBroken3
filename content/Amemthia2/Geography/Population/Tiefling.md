@@ -1,0 +1,5 @@
+Unlike [[Aasimar]], Tieflings can be born male or female.
+
+Tieflings are always born as twins alongside a member of another race. The general consensus is that during a soul’s journey through the Nine Hells, if a person and their demon or devil companion become romantically attached, they are reincarnated with a Tiefling twin. Some people treat their Tiefling sibling as a lifelong companion and refuse to be separated. Others attempt to hide or abandon the Tiefling, seeing it as a sign that their child was evil in a past life. In some cultures, a Tiefling sibling is believed to be a devil or to have inherently evil origins. Attitudes vary widely depending on cultural beliefs.
+
+Second generation Tieflings are rare, as there are relatively few first generation Tieflings, but they do exist. They are usually the offspring of Tieflings who were shunned by their parents.

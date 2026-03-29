@@ -1,0 +1,1 @@
+Issachar was a powerful lich that controlled most of Vrayish before he made the mistake of resurrecting [[Alaric the Cursed]] he likely would have taken over the entire world given enough time.

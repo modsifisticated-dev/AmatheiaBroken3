@@ -1,0 +1,1 @@
+Most [[Nations]] trade pretty happily in the currencies of Gold pieces Silver Pieces and Copper pieces which are kept to a regulation size and controlled by a central bank in [[Skanley]] 

@@ -1,0 +1,1 @@
+[[Firbolg]] are the rare genetic offspring of a humanoid and a giant they aren't seen as a threat or looked down apon by other races mostly because not many people have heard of let alone seen a Firbolg. They have a strong connection to nature and it's rare for one to venture into a town.

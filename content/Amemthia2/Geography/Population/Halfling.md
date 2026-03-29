@@ -1,0 +1,1 @@
+Most people have never seen a Halfling they exist in almost complete isolation in wandering communities that all disappear the second a traveler or wanderer is nearby

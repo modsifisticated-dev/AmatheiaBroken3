@@ -1,0 +1,1 @@
+[[Tortle]]s live on a small jungle island to the north-west of vrayish and keep to themselves mostly, the few that come to the mainland often have a purpose for leaving the safety of their island

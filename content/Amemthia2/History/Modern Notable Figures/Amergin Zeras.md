@@ -1,0 +1,2 @@
+
+Amergin is the high level druid who after defeating Count Kragen took the stake used to stab him through the heart and has grown Erythallee the world tree. He resides in The Great Moreabel Forest and bides his time as his power grows with that of Erythallee. The roots of the forest are being infected and it will soon spread. Given enough time he will likely take control of the neighboring city of Luthram.

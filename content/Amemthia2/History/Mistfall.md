@@ -1,0 +1,2 @@
+- The cause is unknown but many tales involve a human trying to bend the magic of the natural world to their own will
+- 

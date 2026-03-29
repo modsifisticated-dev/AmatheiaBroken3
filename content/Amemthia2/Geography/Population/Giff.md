@@ -1,0 +1,1 @@
+[[Giff]] a warlike race that lives off the coast of Shoshta'ar they get along with their orcish neighbours but don't see a need to get involved in their conflict with Sa'ama they have three major islands that are constantly at war and changing rulers. Looking back no one can remember why they fight only that they do.

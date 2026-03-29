@@ -1,0 +1,3 @@
+Alaric is the leader of the barbarians tribes on Vrayish Bain of [[Drivia]] his people were slaves their entire lives until finally they found peace in death until years later a [[Issachar]] rose them all from the dead Alaric was driven to madness by this forced servitude and ended the reign of this lich over 200 years ago since then Alaric and his undead barbarian horde roam Vrayish killing travelers and living in the Himont mountain ranges luckily those same mountain ranges have withheld the nation from being under siege from any other major factions
+
+[[King Rolandus the Stubborn]] rebuffs attacks when they attack his keep but leaves the majority of towns and smaller cities undefended which makes him little liked among his people

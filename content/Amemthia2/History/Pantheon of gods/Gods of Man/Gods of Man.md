@@ -1,0 +1,7 @@
+[[Egret]]
+[[Obium]]
+[[Oriole]]
+[[Pipit]]
+[[Lomadiah]]
+[[Thrugg and Glogg]]
+[[Zezreus]]
