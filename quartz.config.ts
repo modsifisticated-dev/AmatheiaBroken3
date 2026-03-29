@@ -17,7 +17,7 @@ const config: QuartzConfig = {
     },
     locale: "en-US",
     baseUrl: "modsifisticated-dev.github.io/Amatheia/",
-    ignorePatterns: ["private", "templates", ".obsidian"],
+    ignorePatterns: ["private", "templates"],
     defaultDateType: "modified",
     theme: {
       fontOrigin: "googleFonts",
